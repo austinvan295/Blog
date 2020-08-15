@@ -1,0 +1,1 @@
+Created a personal blog informing individuals about finance, money saving strategies, health, and things I wish I would've known when I was younger. It's like I am writing to my younger self and I enjoy helping others out and giving advice. 
